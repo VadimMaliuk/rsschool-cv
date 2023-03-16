@@ -6,6 +6,8 @@
 
 E-mail: gmaggressor@gmail.com
 
+Phone: +375(29)604-71-81
+
 Discord: Vadzim#4482
 
 Inst: @vadimmaliuk
